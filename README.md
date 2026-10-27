@@ -27,4 +27,4 @@ The game does not include third-party advertising or analytics. If you download 
 If this policy changes, the new version will be published at the same web address with a new date.
 
 8. Contact
-Questions about this policy: [YOUR CONTACT EMAIL]
+Questions about this policy: neigames.business@gmail.com
